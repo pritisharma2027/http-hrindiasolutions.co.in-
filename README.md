@@ -1,0 +1,2 @@
+# http-hrindiasolutions.co.in-
+We serve you the ones who can get you the best. When we interview candidates, we’re assessing them through our clients’ eyes. That means, we’re looking at their skills, experience and individual personalities to bring a high degree of objectivity to the recruitment process which is hard when you are recruiting for yourself. Our confidential candidate reports provide information on their presentation
